@@ -7,6 +7,10 @@ It’s me.
 
 Adaline.`,
 
+`The cutest babie you've ever seen. 
+
+like ever.`,
+
 `I know that might sound a little strange…
 
 because right now I’m still very small.
@@ -22,6 +26,9 @@ From the future.`,
 `Right now my world is very simple.
 
 Warm cuddles.
+Us playing.
+You laughing.
+Me laughing.
 Your voice.
 And the way you look at me.`,
 
