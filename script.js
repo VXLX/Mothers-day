@@ -21,7 +21,7 @@ Too small to write letters.`,
 
 So I asked someone to help me send you this message.
 
-From the future.`,
+(i did all the work).`,
 
 `Right now my world is very simple.
 
